@@ -1,0 +1,1 @@
+# Desafios_Semanais_2026
